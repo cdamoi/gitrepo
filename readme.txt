@@ -7,4 +7,4 @@ Today we'll talk about difference between GaoKao in China and SAT in U.S.
 ok, please repost, comment or like if you like our video, thank you guys for watching!
 see you next time~
 
-wow, look at this n*g**r(a word of racism), he's so stupid.
+
